@@ -1,1 +1,1 @@
-Please Sumbit your PR's here :
+Please Sumbit your PR's here as soon as possible :
